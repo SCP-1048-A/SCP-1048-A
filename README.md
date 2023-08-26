@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @SCP-1048-A
+ruihangao3069@gmail.com
 
 
